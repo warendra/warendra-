@@ -1,4 +1,4 @@
-# warendra-
+
 Hello everyone,
 
 My name is Wahyu Rendra Kurniawan and I'm currently a student majoring in Mathematics Sebelas Maret University. I have always been fascinated by the beauty and precision of mathematics, which led me to pursue this field of study. I am passionate about solving complex problems and exploring the intricate patterns that lie within the realm of numbers.
